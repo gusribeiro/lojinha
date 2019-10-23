@@ -20,7 +20,7 @@ Caso tenha interesse, entre em contato pelo [Telegram](http://t.me/vavomr) ou [W
 
 ---
 
-### Máquina de Caf Nespresso Pixie (R$ 200)
+### Máquina de Café Nespresso Pixie (R$ 200)
 <img src="https://lh3.googleusercontent.com/QODmHJdVGfTP44PZOH9A8bmiWRTcppJV3ge2eEoSWz-tjVaVYk42E5RkzsLwYL-4D38Po7enhMnJjN_MysFyl8p7lHN4IE9C3XTQw-Id4tqDAL0ts3c880BwlKmAOKtGBEIcHM0naeA6TOi5HMnpNlRybMkml3GM4SMicG07YLZywdb3WU6nhcTGL4AO3eA1-g6-zbOGS2alg7A2hU17C0-kD_z1O4zqlY5kvZ60nPKt1Edc8Vi8hDHIlcipXXde3ChffgVTxHgOkXhdTpJ0Ks_T3B3AOE1Oh73UIdAOsZw_hYVn1TyI-8YtpulYJxOyiwL-UR4DClvUQpOnp03KIFbsU7vGA9Sfjhgc1otGoiFOguSEJ2IEQJtBrQD9McsxB75KKl86IaO27RrGxz4qS8vfEAIvhZA1tmuFJrbXIgm0bmEGtVRQ6Ttkn3U3kRtGUNVsvtfrO3BWEczrvedJIYsbFeprLIxai3QizToEmQHb8WF7Eml0EGs2FALhqG7OWDsoM6nA1B0g2f0xqZGIC0nIuXQ_gbvj86UjBt4ccciwK08ElP0zJUBd4mR7azGcWSty4LCpcgoE1jcnZv-zzYr81bHPQ8knw3AZFJXNfXlH0ewawYOnUtKi3ctuIx57sXL-AbcYejWewAZFC-rh0rXkmJoNPOuiPjb22XMUvTDfoslkccRS3yE=w549-h976-no" width="100" />
 
 ---
