@@ -2,7 +2,7 @@
 
 Alguns itens que preciso vender.
 
-Caso tenha interesse, entre em contato pelo [telegram](http://t.me/vavomr) ou [whatssapp](https://wa.me/5511953661032)
+Caso tenha interesse, entre em contato pelo <a href="http://t.me/vavomr" target="_telegram">Telegram</a> ou <a href="https://wa.me/5511953661032" target="_whatsapp">WhatsApp</a>.
 
 ## Violão Giannini (R$ 2.000)
 
