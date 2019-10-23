@@ -4,16 +4,20 @@ Alguns itens que preciso vender.
 
 ---
 Violão Giannini, cordas em aço
-_R$ 2.000_
+
+__R$ 2.000__
 
 ---
 Bandolim Giannini
-_R$ 1.000_
+
+__R$ 1.000__
 
 ---
 Mãquina de Costura Singer
-_R$ 100_
+
+__R$ 100__
 
 ---
 Amplificador Meteoro
-_R$ 100_
+
+__R$ 100__
