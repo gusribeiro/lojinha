@@ -14,4 +14,4 @@ Caso tenha interesse, entre em contato pelo [Telegram](http://t.me/vavomr) ou [W
 ## Amplificador Meteoro (R$ 100)
 
 ## Máquina de Costura Singer (R$ 100)
-
+<img src="https://lh3.googleusercontent.com/H-BS5qdbhN45Ikj25UdGuIHKetcR0r748oZMqxx7MEOE_uw-CCGHgXCihquDNiiNhtkVPcVQ_ULoEqhajPQehvZ4cbUf0BmBS75Tt_RZ-cyFlwIOTOe1zuX5s0wW5hqpK0ZnqUPVLFrdhbhLX6Me8NhFt5Ug0-wUkADEZYzoWtCXBqNZ1dwnLqX2ulxbSdRqluB--bTOHj-eh9mNAK8eJFoRvydj3UfVkiAGoUdz6HkSbFJauSnFgLTz04N74Cs4J3qMGmqGqD8pqhBTxmXye3Xh1fjnYvoB1Wy-45sTI30qrrNK0odx4sX8o5TDa2edXAOtoZ80x3qwb4s3G5-vJVSforMuRLmJPseJHBZqE1r8-saxfS1bLJnvMi1Wte0I5ztQcxtFuLjWjIJw7rwzBdy8zpUeEa5UGZyoaOKaHHsmYrZxo7bCI06JvfY53HBhQigULKld8Sc5IH2-eT2OJPg5PHYN4cHA6wcwpEn-p6EM8FBnZXmP73ZfTEp0BiX7MpbmhURzGP-3MDBe1IF2NLK-X6WNZKLV0PQQxmZVi-FuCKf-0qdMBjbE4_1oB3TeDwidBMXPZJsh7nSCaUHfA2oMMZ0T8HxZlBmr_2VnPBmG4g7d_nDRNR12sr2Nm7HcACTHMtBA-ZMSQbEAX6muYdJxJYkkhyBpVcGvjLE_YjA0tma_8ZYxmaA=w1736-h976-no" width="150" />
