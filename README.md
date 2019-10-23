@@ -2,10 +2,18 @@
 
 Alguns itens que preciso vender.
 
-|Produto		|Marca		|Descrição	|Valor (R$)	|
-|-----------------------|---------------|---------------|---------------|
-|Violão			|Giannini	|		|2000		|
-|Bandolim Giannini	|Giannini	|		|1000		|
-|Máquina de Costura	|Singer		|		|100		|
-|Amplificador		|Meteoro	|		|150		|
+---
+Violão Giannini, cordas em aço
+_R$ 2.000_
 
+---
+Bandolim Giannini
+_R$ 1.000_
+
+---
+Mãquina de Costura Singer
+_R$ 100_
+
+---
+Amplificador Meteoro
+_R$ 100_
