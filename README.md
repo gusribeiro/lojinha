@@ -55,3 +55,8 @@ Caso tenha interesse, entre em contato pelo [Telegram](http://t.me/vavomr) ou [W
 - Kit com 4 peças
 
 <img src="imagens/som1.jpg" width="100" /> <img src="imagens/som2.jpg" width="100" /> <img src="imagens/som3.jpg" width="100" />
+
+---
+
+### Apple Remote
+<img src="imagens/remote1.jpg" width="100" /> <img src="imagens/remote2.jpg" width="100" /> <img src="imagens/remote3.jpg" width="100" />
