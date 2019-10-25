@@ -58,5 +58,5 @@ Caso tenha interesse, entre em contato pelo [Telegram](http://t.me/vavomr) ou [W
 
 ---
 
-### Apple Remote
+### Apple Remote (R$ 80)
 <img src="imagens/remote1.jpg" width="100" /> <img src="imagens/remote2.jpg" width="100" /> <img src="imagens/remote3.jpg" width="100" />
